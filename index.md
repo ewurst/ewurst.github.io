@@ -1,17 +1,21 @@
 ## Lovecraftian Markov Generation
 
-You can use the [editor on GitHub](https://github.com/ewurst/ewurst.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
+### Lovecraft Entries
 
 
-```markdown
+```entries
 
 Here he didn't look when Wilbur raised suthin' abroad as clumsy as most desperate debate. Strange and sheer stony cliff of cowed and indeed phenomenal, for real fever. He ran strong, and of rotting ancient lore in which her leisure much like a stench and above even the hills. Then they knew painfully well what simpletons! Show them tracks las' Monday mornin'. An' when the shrilling from the party wire, Cha'ncey he said, or wholly lost consciousness and Morgan we do? Up thar in Wilbur Whateley farmhouse set an actual example to see nuthin' aout o' them Arthur Machen's Great God Pan and Dr. Armitage and adjudged a half-comatose state; but a turrible yell, an' ye kin hear Cha'ncey he had sent back--the Whateleys raised his mother's disappearance, and the road by the way abaout it--all like he caught near the Whateleys were of nature and it became necessary. Lunch and hardened to himself. Great God Pan and a jumble of the country folk read for fifteen years before. Less inexplicable was took, only an actual Dunwich folk read the gate. Past, present, future, all the crowd at Harvard, the Aylesbury people began to the kind of me take it along, sir, an' dun't let in the mixed low place, and leaped nervously out of research among disordered tables and were spiced with rising pangs of Ocean hold me er not. Ef they saw that shocking altar-stone, were they were watched it out. They shall ye opens to have been made into some plan to geologists and after a being afraid of the Necronomicon, in ink and rushed across the abdomen a cipher in 1806, form the top of panic that black fur, and to gather renewed force and how lingeringly a continuous passage in the mountainous horror, can we naturally conceive terror from the savage yelping of all his grandfather.
 
+```
+
+```entries
+
 Gawd, that black wells of viewless force and moaning, proceeded unmistakably from the upper story. She had uncovered. Then everybody was talk about the town's and chimney of panic they disgrace. Some time two centuries ago, when the multiplication table, and to see all till sunup, an' haowever did not one has been wrecked. Let me saying the table-like stone pillars, and among strange uneasiness is it was a sheer fantasy began. The whippoorwills continued to dew. Not but asserts confidently that the rud towards Wizard Whateley's boarded-up second story and terrible elder race and head, and heavier clouds of the echoes of notice was a sudden start that night Wilbur Whateley noticed that was callin' folks hereabouts. Lavinny's a-callin' its time, went to the big-game rifle on May Eve of the floor. One of the hills that which passed for some big tracks abaout it. They reign again. The ice desert of the Hill as chairman of questioning, and believed he muttered half from the table-like stone pillars with disjointed fragments of the Pocumtucks; even bold souls who looked like thunder, an' that Dr. Armitage, he said, seemed to hover about the crowd gazed about the text was back the hills; the house and feared because it along the men shut up whar them could be found in his life from a few undestroyed Frye ruins in the trees an' strainin' on Sentinel Hill....
+
+```
+
+```entries
 
 Thursday night he attacked the brain of that remained in his popularity amongst the mill at all, only the air it clean of whom the frightful changes were scattered the last illness, and were spiced with a slow but the sleepers of Beelzebub and become a complaint to the queer circles were fully a considerable distance from no use. Old Whateley's ol' Seth Bishop's quickest by a window showed a pandemonium of flame--them witch Whateleys' doin's--from the worst; for himself in view above the rhythmical piping, as could not civilly refrain from telling the junction of order to Arkham--what walked ahead of the size of the city, yet one of Aylesbury; an' mind the countryside. Trees, grass, and Miskatonic, though he seemed to read, and family. Throughout that most accursed rites and litigations concerning the ruins and Morgan. Far into the ancient trees on earth, or twelve anemic, bloodless-looking specimens. Evidently some nameless purpose. Feed it in a city before, and the dark, and shapes of peering in, and it will grow. Then, amidst the graoun' was a few cases closely by himself in certain hours from anything sane or the clothing and the whole of the stricken region. Now he couldn't see it come from one remaining horse through the trouble naow--that was that day was odd, and the whippoorwills among the annihilation of which simply could scarcely have let a spell to dew that. Jest still-like. We have come from?
 
